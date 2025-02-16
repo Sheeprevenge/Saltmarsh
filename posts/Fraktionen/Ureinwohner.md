@@ -1,0 +1,3 @@
+Die Ureinwohner des Archipels waren menschliche Völker, welche  eine der [[Göttermythos|drei Gottheiten]] anbeteten. Über die Völker ist nicht mehr viel bekannt, da die meisten entweder durch den Rat der Grafen oder durch die Piraten vertrieben oder vernichtet worden sind. Einige wenige kleine Dörfer haben überlebt und leben abseits der Zivilisation.
+
+Die Eingeborenen zeichnen sich durch die ihre magischen Tattoos aus. Bekannt die Kräfte der Taeva Völker, welche mit ihren grünen Tattoos Wunde schließen und Andere bestärken können. Die Tattoos der Vesi Völker hingegen haben eher eine zerstörerische Kraft inne. 
